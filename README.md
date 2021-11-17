@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @dontknowbutfeelsok.
-- 📫 Gmail me if you need to contact.
+- 📫 Mail me if you need to contact. dontknowwhybutfeelsgood@gmail.com
 
 <!---
 dontknowbutfeelsok/dontknowbutfeelsok is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
